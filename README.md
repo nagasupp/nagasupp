@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @nagasupp
 - 👀 this acount is used for a ctf
+- Go to see more: https://pastebin.com/aG2X7TSS
+rVNFz9WzuR
   
 
 <!---
